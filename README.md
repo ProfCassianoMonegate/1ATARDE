@@ -1,7 +1,6 @@
 # Este arquivo será um exemplo para o 1A
 ## Unicamente para a aula do dia 29 de maio de 2026, às 15:00.
-[Canto para Govinda](https://www.youtube.com/watch?v=q2CjmSG30dw&list=RDq2CjmSG30dw&start_radio=1)
-
+[Canto para Govinda](https://www.youtube.com/watch?v=kwSxhN0wcNc)
 
 **Frase em negrito**
 
