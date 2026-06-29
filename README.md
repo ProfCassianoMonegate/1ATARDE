@@ -13,6 +13,6 @@ _Esta música é beeeeem legal_
 - Foi regravada pela Banda Mais Bonita da Cidade
 
 ![gato de boca aberta ouvindo trovão assustado](https://media.tenor.com/dYDlDrsJhsUAAAAC/tongue-cat-tongue-out.gif)
-
+![menino dançando](https://media1.tenor.com/m/e67mESTRcVAAAAAC/dance.gif)
 
 ![rapaz dançando no rodeio](https://media1.tenor.com/m/YawokZurd2wAAAAd/cowboy-dancing.gif)
